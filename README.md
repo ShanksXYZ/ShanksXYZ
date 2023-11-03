@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ShanksXYZ
+- 👀 I’m pixel artist
