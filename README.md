@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @ShanksXYZ
 - 👀 I’m pixel artist
+- 🎴 I’m mc bedrock dev XD
+- 🙂 my discord "shanksxyz"
